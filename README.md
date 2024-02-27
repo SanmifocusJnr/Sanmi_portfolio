@@ -1,1 +1,1 @@
-# Sanmi_portfolio
+# sanmifocusjnr portfolio
